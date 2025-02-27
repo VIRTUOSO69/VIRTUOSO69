@@ -1,8 +1,8 @@
 - you don't wanna know me.
-- 👀 I’m interested in something called nonayabusiness
-- 🌱 I’m currently learning noneofya damnbusiness
-- 💞️ I’m looking to collaborate on nothing ngl
-- 📫 How to reach me (PLS DON'T TRY) 
+- I’m interested in something called nonayabusiness
+-  I’m currently learning noneofya damnbusiness
+- I’m looking to collaborate on nothing ngl
+-  How to reach me (PLS DON'T TRY) 
 - ⚡ Fun fact: autist (not a fun one fr)
 
 <!---
