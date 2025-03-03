@@ -4,7 +4,7 @@
 - I’m looking to collaborate on nothing ngl
 -  How to reach me (PLS DON'T TRY) 
 - ⚡ Fun fact: autist (not a fun one fr)
-
+hit me up now, i might kill myself later :))
 <!---
 VIRTUOSO69/VIRTUOSO69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
